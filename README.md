@@ -1,5 +1,5 @@
 <div align="center">
-  <img height="200" src="https://i.imgflip.com/65efzo.gif"  />
+  <img height="200" src="https://steamcommunity.com/sharedfiles/filedetails/?id=1619935368"  />
 </div>
 
 ###
